@@ -1,2 +1,2 @@
 # Vaibhavi-
-B. Tech student of Electronic &amp; Computer
+B. Tech student of Electronics &amp; Computer
